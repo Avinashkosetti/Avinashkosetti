@@ -1,4 +1,4 @@
-- 👋 Hi, this is  @Avinashkosetti
+- 👋 Hi, this is  Avinashkosetti
 - 👀 I’m eagarly waiting for hiring 
 - 🌱 I’m currently Pursuing my BTech in Parul University ...
 - 💞️ I’m looking to collaborate with whome they wants to build there profile with some good knowledge and skills 
